@@ -1,4 +1,4 @@
-### Hi programmers 👋
+### It's time to... 👋
 
 #### See my organizations to find other projects
 
